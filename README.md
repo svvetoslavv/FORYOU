@@ -1,1 +1,1 @@
-<h1> <a href="legends.html">CLICK HERE LUD</a> </h1>
+<h1> <a href="legends.html">CLICK HERE BE BIRTDAYBOY</a> </h1>
